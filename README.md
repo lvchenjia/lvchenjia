@@ -1,5 +1,12 @@
 ### Hi there 👋
 
+唯达者知通为一
+为是不用而寓诸庸
+因是已
+已而不知其然
+谓之
+道
+
 <!--
 **lvchenjia/lvchenjia** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
